@@ -1,6 +1,6 @@
 ## 在线精选视频：
 
-## <a href="https://s3-us-west-1.amazonaws.com/ogaten/show.htm?from=852#c816837">九评共产党</a><br/>
+## <a href="http://ds88ndwd0shk.cloudfront.net/video/?k2=vsXGwA">九评共产党</a><br/>
 ## <a href="https://s3.amazonaws.com/ogate/show.htm?from=852#c838867"> 医院背后的秘密 </a><br/>
 
 ## 离线下载视频：
