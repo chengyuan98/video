@@ -1,7 +1,7 @@
 ## 在线精选视频：
 
-## <a href="http://ds88ndwd0shk.cloudfront.net/video/?k2=vsXGwA">九评共产党</a><br/>
-## <a href="http://d3aj3b94q67nbr.cloudfront.net/video/play/1080.html"> 医院背后的秘密 </a><br/>
+## <a href="http://dbr9xat59wtlt.cloudfront.net/video/play/4.html">九评共产党</a><br/>
+## <a href="http://dbr9xat59wtlt.cloudfront.net/video/play/1080.html"> 医院背后的秘密 </a><br/>
 
 ## 离线下载视频：
 
